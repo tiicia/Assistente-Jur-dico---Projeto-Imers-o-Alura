@@ -1,0 +1,1 @@
+# Assistente-Jur-dico---Projeto-Imers-o-Alura
